@@ -2,6 +2,8 @@
 
 As you may noticed (https://github.com/bitcoin-dot-org/Bitcoin.org/blob/master/_posts/2021-01-21-regarding-csw.md) this mfoker tryin to remove from sites bitcoin white paper (just lol)!
 
+https://faketoshi.cypherpunks.xyz/
+
 So here you have it Craig just for you stored on bitcoin as it should be, idiot try to remove this!
 
 ```
